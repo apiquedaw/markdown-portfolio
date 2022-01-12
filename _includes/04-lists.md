@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+*. G
+*. U
+*. A
+*. Y
+*. A
+*. N
+*. D
+*. O
